@@ -1,3 +1,5 @@
+[https://chinawangxy.github.io/](https://chinawangxy.github.io/)
+
 ## 沟通意识命令与执行
 > 正向
 - 想要你的礼仪发挥好的效果，首先要从体型上有所改变，最简单直接的办法就是瑜伽，健身，舞蹈。
